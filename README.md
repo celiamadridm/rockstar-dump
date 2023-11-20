@@ -1,2 +1,2 @@
 # rockstar-dump
-Code dump
+Fun in the sun! :joy:
